@@ -14,7 +14,7 @@ Con el paso de los años, la **UICC** se ha convertido en una institución notab
 
 ## ¿Cuál es el objetivo?
 
-El objetivo de este día es informar y alentar a las personas sobre su prevención, detección temprana y tratamiento. Esta iniciativa fue asumida por la *UICC* para hacer campaña y abogar por los objetivos de la Declaración Mundial contra el Cáncer, redactada en 2008.
+El objetivo de este día es informar y alentar a las personas sobre su prevención, detección temprana y tratamiento. Esta iniciativa fue asumida por la **UICC** para hacer campaña y abogar por los objetivos de la Declaración Mundial contra el Cáncer, redactada en 2008.
 
 ## Una tradición sin barreras
 
